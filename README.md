@@ -1,16 +1,15 @@
-### Hi there 👋
+oiiiiii meu nome é marcelly ><
 
-<!--
-**tortademogango/tortademogango** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- eu gosto de fazer muitas coisinhass 💞
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 🔭 eu trabalho editando videozinhos!!!
+- 🌱 minha matéria favorita é inglÊs!!!!!!
+- 👯 eu amo meu namorado >///<
+- 🤔 eu não sou muito boa em química :///
+- 💬 eu amo falar sobre jojo hihihi
+- 📫 sou gótica trevosa
+- 😄 meus pronomes são ela/dela :3
+- ⚡ eu gosto muito de comer doces, jogar joguinhos com meus amigos e ficar com meu namorado!!! :333
 -->
+  
+![https://tenor.com/pt-BR/view/jolyne-jolyne-cujoh-dance-dancing-part6-gif-25125887](gif)
